@@ -73,6 +73,5 @@ Technical media production workflows frequently use animation composer 3 downloa
 
 ---
 
-## Tags
 
 animation composer • animation composer after effects • animation composer 3 • animation composer mister horse • animation composer3 • mister horse animation composer • misterhorse • misterhorse animation composer • mr horse animation composer • mr horse plugin • mr horse premiere composer • mr horse premiere pro • animation composer premiere • animation composer premiere pro • after effects composer • after effects horse plugin • animation composer 2 • animation composer 3 after effects • animation composer 3 download • animation composer 4
